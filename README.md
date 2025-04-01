@@ -1,3 +1,3 @@
 ### Andrew Fauth
-- 🖥️: Founder of [SiteScout.pro](https://sitescout.pro)
+- 🖥️ Founder of [SiteScout.pro](https://sitescout.pro)
 
